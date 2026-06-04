@@ -1,1 +1,1 @@
-<p align="center"><img src="https://media.tenor.com/thoEi8iwT94AAAAC/gerardway-mcr.gif"/>
+<p align="center"><img src="https://media.discordapp.net/attachments/1000898869397311581/1512227164731215992/Untitled348_20260604185044.png?ex=6a2352cb&is=6a22014b&hm=f6d3683303c9f0d5e563116ef2ff5d6ce52487d18a7651841cd226f7af592305&=&format=webp&quality=lossless&width=550&height=274"/>
